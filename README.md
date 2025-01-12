@@ -1,4 +1,9 @@
 <p align="center">
-![156 Sem Título_20250112192316](https://github.com/user-attachments/assets/63f4335f-33f7-4e65-a85a-a427868a7bca)
- how do i center stuff pls😢😢😢
+nana  /  argus
+</p> 
+<p align="center">
+    <img width="200" src="https://github.com/user-attachments/assets/63f4335f-33f7-4e65-a85a-a427868a7bca" alt="chibi argus lying dowm">
+</p>
+<p align="center">
+ummm adds links here 
 </p>
