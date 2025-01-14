@@ -8,6 +8,5 @@ nana  /  argus
     <img width="100" src="https://komarev.com/ghpvc/?username=wolfbrothers"
         </p>
 <p align="center">
-(prns.cc)[https://pronouns.cc/@argus] (rentry)[https://rentry.co/rockstars] (ata)[https://wolfbrothers.atabook.org/]
-OH MY GOD WHY DOES IT NOT WORKKKKK😢
+[prns.cc](https://pronouns.cc/@argus) [rentry](https://rentry.co/rockstars) [ata](https://wolfbrothers.atabook.org/)
 </p>
