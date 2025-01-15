@@ -12,13 +12,8 @@ nana  /  argus
 
 <p align="center">
 huge interest in lis games, specific
-    regretevator & phighting stuff, 
+    regretevator/phighting stuff, r1999's lore 
 </p>
 
 <p align="center">
-another image here 
-</p>
-
-<p align="center">
-basic dni criteria, ship discourse && unfortunately a vast majority of the regretevator/phighting fandom
-</p>
+another image here
