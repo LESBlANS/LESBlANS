@@ -8,11 +8,13 @@ nana  /  argus
     <img width="100" src="https://komarev.com/ghpvc/?username=wolfbrothers"
         </p>
     
-ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤ  ㅤㅤㅤ[prns.cc](https://pronouns.cc/@argus) . [rentry](https://rentry.co/rockstars) . [ata](https://wolfbrothers.atabook.org/)
+ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤ  ㅤㅤ[prns.cc](https://pronouns.cc/@argus) . [rentry](https://rentry.co/rockstars) . [ata](https://wolfbrothers.atabook.org/)
 
 <p align="center">
 huge interest in lis games, specific
-    regretevator/phighting stuff, r1999's lore 
+    regretevator/phighting stuff, r1999's lore.
+
+ really bad with words && numbers, please don't use typing quirks with me
 </p>
 
 <p align="center">
