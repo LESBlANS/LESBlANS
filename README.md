@@ -13,7 +13,8 @@ nana  /  argus
 <p align="center">
 huge interest in lis games, specific
     regretevator/phighting stuff, r1999's lore.
-
+</p>
+<p align="center">
  really bad with words && numbers, please don't use typing quirks with me
 </p>
 
