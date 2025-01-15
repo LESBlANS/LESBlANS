@@ -8,7 +8,7 @@ nana  /  argus
     <img width="100" src="https://komarev.com/ghpvc/?username=wolfbrothers"
         </p>
     
-ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤ[prns.cc](https://pronouns.cc/@argus) [rentry](https://rentry.co/rockstars) [ata](https://wolfbrothers.atabook.org/)
+ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤ  ㅤㅤㅤ[prns.cc](https://pronouns.cc/@argus) [rentry](https://rentry.co/rockstars) [ata](https://wolfbrothers.atabook.org/)
 
 <p align="center">
 huge interest in lis games, specific
