@@ -7,6 +7,18 @@ nana  /  argus
 <p align="center">
     <img width="100" src="https://komarev.com/ghpvc/?username=wolfbrothers"
         </p>
-<p align="center">
+    
 [prns.cc](https://pronouns.cc/@argus) [rentry](https://rentry.co/rockstars) [ata](https://wolfbrothers.atabook.org/)
+
+<p align="center">
+huge interest in lis games, specific
+    regretevator & phighting stuff, 
+</p>
+
+<p align="center">
+another image here 
+</p>
+
+<p align="center">
+basic dni criteria, ship discourse && unfortunately a vast majority of the regretevator/phighting fandom
 </p>
