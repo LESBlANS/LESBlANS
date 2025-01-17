@@ -19,4 +19,4 @@ huge interest in lis games,
 </p>
 
 <p align="center">
-i use (~) as a joke btw... don't take a lot of things i sau seriously 
+i use (~) as a joke btw... don't take a lot of things i say seriously 
