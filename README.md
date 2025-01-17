@@ -15,7 +15,7 @@ huge interest in lis games,
     regretevator, phighting, squid game/ round 6, r1999 && more!
 </p>
 <p align="center">
- really bad with words && numbers, please don't use typing quirks with me
+ i have really hard time with words && numbers, please don't use typing quirks with me
 </p>
 
 <p align="center">
