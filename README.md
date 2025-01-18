@@ -19,4 +19,4 @@ huge interest in lis games,
 </p>
 
 <p align="center">
-i use (~) as a joke btw... don't take a lot of things i say seriously 
+too much of a pussy to int first,,, feel free to int or c+h me anytime though! i love it when people do
