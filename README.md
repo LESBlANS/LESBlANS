@@ -4,6 +4,7 @@ art by @Manndy_Yjk on X
 <p align="center">
     <img width="200" src="https://github.com/user-attachments/assets/925ac19d-1060-4360-9be1-1a3531deccfe" alt="chibi argus lying down">
 </p>
+
  ㅤㅤㅤ ㅤ  ㅤㅤ[prns.cc](https://pronouns.cc/@argus) . [rentry](https://rentry.co/rockstars) . [ata](https://wolfbrothers.atabook.org/)
 
 <p align="center">
