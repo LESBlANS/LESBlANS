@@ -2,7 +2,7 @@
 nana  /  argus
 </p> 
 <p align="center">
-    <img width="200" src="https://github.com/user-attachments/assets/63f4335f-33f7-4e65-a85a-a427868a7bca" alt="chibi argus lying down">
+    <img width="200" src="https://github.com/user-attachments/assets/925ac19d-1060-4360-9be1-1a3531deccfe" alt="chibi argus lying down">
 </p>
 <p align="center">
     <img width="100" src="https://komarev.com/ghpvc/?username=wolfbrothers"
