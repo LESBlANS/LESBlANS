@@ -1,5 +1,5 @@
 <p align="center">
-nana  /  argus
+art by @Manndy_Yjk on X
 </p> 
 <p align="center">
     <img width="200" src="https://github.com/user-attachments/assets/925ac19d-1060-4360-9be1-1a3531deccfe" alt="chibi argus lying down">
