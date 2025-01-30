@@ -11,12 +11,8 @@ art by @Manndy_Yjk on X
 ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤ  ㅤㅤ[prns.cc](https://pronouns.cc/@argus) . [rentry](https://rentry.co/rockstars) . [ata](https://wolfbrothers.atabook.org/)
 
 <p align="center">
-huge interest in lis games,
-    regretevator, phighting, squid game/ round 6, r1999 && more!
+english / portuguese
 </p>
 <p align="center">
- i have really hard time with words && numbers, please don't use typing quirks with me
+ basic dni criteria applies when interacting. ship discourse / drama in general dni
 </p>
-
-<p align="center">
-too much of a pussy to int first,,, feel free to int or c+h me anytime though! i love it when people do
