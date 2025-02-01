@@ -13,3 +13,6 @@ english / portuguese
 <p align="center">
  basic dni criteria applies when interacting. ship discourse / drama in general dni
 </p>
+<p align="center">
+sorry, i might come of as awkward/shy, especially if we don't know each other well. and because of that I'll most likely worry a lot about the impression i give you
+</p>
