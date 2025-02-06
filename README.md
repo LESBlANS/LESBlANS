@@ -4,12 +4,8 @@
 
 <p align="center">
 <a href="https://rentry.co/vilasong"
-/><br />
-      rentry 
-</a>
-<a href="https://wolfbrothers.atabook.org/"
-/><br />
-    atabook
+   target="_blank" rel="external nofollow">
+      <img src="https://github.com/user-attachments/assets/755e6f65-f296-4512-a974-e1e4a237f445" alt="" >
 </p>
 
 <p align="center">
