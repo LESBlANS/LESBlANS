@@ -21,7 +21,7 @@ href="https://rentry.co/vilasong"
 </p>
 
 <p align="center">
-    (the pixels are buttons, click 'em!)
+    (𝘵𝘩𝘦 𝘱𝘪𝘹𝘦𝘭𝘴 𝘢𝘳𝘦 𝘣𝘶𝘵𝘵𝘰𝘯𝘴, 𝘤𝘭𝘪𝘤𝘬 '𝘦𝘮!)
     <p align="center">
 eng / pt / esp
 <p align="center">
