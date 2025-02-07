@@ -11,5 +11,5 @@
 <p align="center">
 eng / pt / esp
 <p align="center">
- basic dni criteria applies when interacting. ship discourse / drama in general dni
+ basic dni criteria applies when interacting — i block freely.
 </p>
