@@ -4,7 +4,7 @@
       click to help ❤️
 </a>
 <p align="center">
-    <img width="200" src="https://github.com/user-attachments/assets/bd06e3c8-7823-4cc5-ab4e-835a841c377d" alt="">
+    <img width="200" src="https://github.com/user-attachments/assets/100568a3-792c-4e8c-b622-6218e2f5a8a1" alt="">
 </p>
 
 <p align="center">
@@ -27,3 +27,4 @@ eng / pt / esp
 <p align="center">
  basic dni criteria applies when interacting — i block freely.
 </p>
+
