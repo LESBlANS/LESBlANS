@@ -10,21 +10,19 @@
 <p align="center">
 <a href="https://wolfbrothers.atabook.org/"
    target="_blank" rel="external nofollow">
-      <img src="https://github.com/user-attachments/assets/755e6f65-f296-4512-a974-e1e4a237f445" alt="" >
+      <img width= 90 src="https://github.com/user-attachments/assets/7cf506fa-b634-4cd1-b1f8-9b9b1a7008fc" alt="" >
 <a 
 href="https://rentry.co/vilasong"
    target="_blank" rel="external nofollow">
-          <img src="https://github.com/user-attachments/assets/843b6ed2-1e99-4b46-8834-425ff33d1643" alt="" >
+          <img width= 90
+src="https://github.com/user-attachments/assets/69794330-3dbc-4de4-991e-fd4f749c2bf5" alt="" >
         <a href="https://rentry.co/vilasong"
    target="_blank" rel="external nofollow">
-      <img src="https://github.com/user-attachments/assets/b6f7e888-5497-4942-aa76-7722690ba069" alt="" >
+      <img width = 90 src="https://github.com/user-attachments/assets/d7f1e0ef-41e6-4e97-acf6-4a5e58bd37af" alt="" >
 </p>
 
 <p align="center">
-    (𝘵𝘩𝘦 𝘱𝘪𝘹𝘦𝘭𝘴 𝘢𝘳𝘦 𝘣𝘶𝘵𝘵𝘰𝘯𝘴, 𝘤𝘭𝘪𝘤𝘬 '𝘦𝘮!)
-    <p align="center">
 eng / pt / esp
 <p align="center">
  basic dni criteria applies when interacting — i block freely.
 </p>
-
