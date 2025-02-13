@@ -4,7 +4,7 @@
       click to help ❤️
 </a>
 <p align="center">
-    <img width="200" src="https://github.com/user-attachments/assets/100568a3-792c-4e8c-b622-6218e2f5a8a1" alt="">
+    <img width="200" src="https://github.com/user-attachments/assets/1787ccee-b5ec-4191-9680-bac4a56101ac" alt="regulus chibi">
 </p>
 
 <p align="center">
