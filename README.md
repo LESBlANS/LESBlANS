@@ -12,7 +12,7 @@
    target="_blank" rel="external nofollow">
       <img width= 90 src="https://github.com/user-attachments/assets/69794330-3dbc-4de4-991e-fd4f749c2bf5" alt="" >
 <a 
-href="https://rentry.co/vilasong"
+href="https://rentry.co/lesbianism"
    target="_blank" rel="external nofollow">
           <img width= 90
 src="https://github.com/user-attachments/assets/d7f1e0ef-41e6-4e97-acf6-4a5e58bd37af" alt="" >
